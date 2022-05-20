@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @kuriswho
+- 🌱 I’m currently learning patience
